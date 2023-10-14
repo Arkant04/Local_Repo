@@ -1,0 +1,3 @@
+# Hola muy buenas tardes
+### Hoy os voy a narra una triste historia:
+"Como bien se sabe, las mujeres no existen, así que decidí acusar a mi hermana de 9 años por ser un robot de la CIA. Ella me dijo que estaba loco, por lo que decidí probarle a ella que efectivamente era un robot de la manera más lógica: lanzarla a una pared. Mi teoría era que ella quedaría ilesa por ser un robot, pero cuando la lancé, se golpeó la cabeza con la pared y murió. Después de que mis padres llegasen, me regañaron y me arrestaron por asesinar a mi hermana. En conclusión, hice mal al probar mi teoría?"
